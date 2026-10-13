@@ -13,7 +13,7 @@
 
 About Me : 
 
-Hello, you probably already know certainly that I am 20 years old. I am a female and go by the pronouns of she/her.
+Hello, you probably already know certainly that I am 18 years old. I am a female and go by the pronouns of she/her.
 
 I was born in Ukraine. I am now in the U.S at the moment, planning to move to Vegas in a bit for a new refresh to life.
 
